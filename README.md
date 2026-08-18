@@ -87,6 +87,10 @@ VTU | 2025 | 8.2 CGPA
 
 📧 Email: [thesudhakar9019@gmail.com](mailto:thesudhakar9019@gmail.com)
 
+
+LinkedIn:
+www.linkedin.com/in/sudhakar-s-29307b246
+
 💻 GitHub:
 https://github.com/SudhakarMSP
 
